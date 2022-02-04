@@ -1,0 +1,1 @@
+Terjemahan indonesia berasal dari King Fahad Quran Complex
